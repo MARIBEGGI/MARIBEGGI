@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MARIBEGGI I'm 38, married, no children, 3 dogs, brazilian. 
+- 👋 Hi, I’m @MARIBEGGI I'm 42, married, no children, 3 dogs, brazilian. 
 - 👀 I’m interested in learning about tecnology and spiritual things.
 - 🌱 I’m currently learning PLSQL.
 - 💞️ I’m looking to collaborate on SAP FICO subjects.
